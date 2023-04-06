@@ -1,2 +1,2 @@
 # wicked_wench
-Power flows from the barrel of the gun(Chinese communist leader Mao Zedong)
+Political power flows from the barrel of the gun(Chinese communist leader Mao Zedong)
